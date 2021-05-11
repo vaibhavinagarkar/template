@@ -1,2 +1,0 @@
-![Uploading template.png…]()
-
